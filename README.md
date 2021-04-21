@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KeplerVN 
+- 👋 Hi, I’m @kedpalter 
 - 👀 I’m interested in...manythings haha !
 - 💞️ I’m working for an investing fund
 - 📫 Reach me at masterdat102@gmail.com
